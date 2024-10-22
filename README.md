@@ -1,0 +1,4 @@
+- 👋 Olá, sou Lucas Fernandes
+- 👀 A procura dp meu primeiro estagio
+- 🌱 Cursando SI na Uniube - Uberlandia/MG
+- 📫 Estou a disposicao no whatsapp do número (34)99906-2105
